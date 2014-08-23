@@ -1,0 +1,66 @@
+June 16, 1974
+
+The Gulag Archipelago
+By STEPHEN F. COHEN
+
+THE GULAG ARCHIPELAGO. 1918-1956. An Experiment in Literary Investigation, 1-11. 
+By Aleksandr I. Solzhenitsyn. 
+Translated by Thomas P. Whitney.
+LETTER TO THE SOVIET LEADERS 
+By Aleksandr I. Solzhenitsyn. 
+Translated by Hilary Sternberg. 
+ Most books about the experience of holocaust, especially those written by survivors, have two purposes. One is to chronicle the full horror of the holocaust, to sear it into the collective consciousness, so that it may never recur. The other is to explain the historical origins and causes of that experience.
+
+"The Gulag Archipelago" is a non-fictional account from and about the other great holocaust of our century--the imprisonment, brutalization and very often murder of tens of millions of innocent Soviet citizens by their own Government, mostly during Stalin's rule from 1929 to 1953.
+
+Aleksandr Solzhenitsyn has called "The Gulag Archipelago" his "main" work, setting it above the major novels that won him the reputation of Russia's pre-eminent living writer and the 1970 Nobel Prize. The importance he attaches to the book, written in 1958-68 but authorized for Western publication only after the Soviet secret police seized a copy of the manuscript last August, is understandable.
+
+Solzhenitsyn's first purpose has been to document for the Soviet people, whose Government has acknowledged only part of the truth and almost none of the responsibility, the full dimensions of what happened. A survivor himself, Solzhenitsyn feels a messianic obligation to "all those tortured and murdered," but even more to living and future generations. He wants the whole truth of official criminality and civic acquiescence openly acknowledged and condemned so that the nation can achieve spiritual and political renewal through "the great Russian tradition of penitence." As a chronicle of the holocaust, "The Gulag Archipelago" is an extraordinary achievement. As historical explanation, it is less successful.
+
+Solzhenitsyn has recreated the history between 1918 and 1956 of "that amazing country of Gulag which, though scattered in an archipelago geographically, was, in the psychological sense, fused into a continent--an almost invisible, almost imperceptible, country inhabited by the zek people [prisoners]". . .Archipelago refers to the far-flung system of forced labor camps run and augmented by the secret police and its institutions, whose prisoner population grew from small numbers after the revolution of 1917 to 12 to 15 million (about half "politicals") at any one time by the 1940's. Gulag is the acronym of the central office that administered the penal camps.
+
+Solzhenitsyn's reconstruction of this secret "country" with the country is itself a heroic accomplishment under Soviet conditions. The main sources are his own experiences from 1945 to 1953 and those related to him by 227 other survivors. Their testimonies are supplemented by information from official, samizdat, and even several Western publications. They are assembled in a powerful narrative which combines the prose styles of epic novelist, partisan, historian and outraged moralist, interspersed with Russian proverbs, black humor, prison camp language and parodies of Soviet bureaucratese. The sardonically polemical tone throughout the book suits Solzhenitsyn's subject and anger.
+
+This volume of "The Gulag Archipelago," containing only two of seven projected parts, is structure loosely as a journey to the "thousands of islands of the spellbound Archipelago." The reader follows scores of victims, their biographies effectively generalized, from arrest to first cell and "interrogation," then onward through transit prisons, across the vast country in overcrowded, pestilent trains, to the ports and ships of the Archipelago. It is a journey into debasement and death, into grotesque torture, execution, rape, starvation, thirst, disease and more. Reduced to "a caricature of humanity," millions somehow survived the journey, other millions did not. The journey and book end upon arrival at the forced labor camps. Solzhenitsyn presumably will describe life and death there in subsequent volumes. Here he remarks only, "In camp it will be. . . .worse."
+
+Solzhenitsyn's exposé should surprise no educated Western reader. General and specific aspects of the atrocity have long been known. Yet even for specialists there is a plethora of new detail, some more terrible, some ridiculous. Policemen search and dump the tiny coffin containing an arrested man's infant child. A woman interrogator threatens to arrest a prisoner's daughter and "lock her in a cell with syphilitics." A prisoner protesting that his alleged crime occurred when he was only 10 years old is warned not to "slander the Soviet intelligence service."
+
+Not all of Solzhenitsyn's information about larger political affairs can be taken at face value. It seems unlikely, for example, that 200,000 Leningraders were arrested in 1934-35 alone, though the number may have been reached over a longer period. The tale of Stalin's plan to unleash a great pogrom in the early 1950's by publicly hanging several Jewish doctors in Red Square, however compatible with the dictator's personality, is based only on "rumors." these are minor points, though, and do not diminish the truthfulness of Solzhenitsyn's overall account.
+
+Exposé, narrowly defined, is only part of this long and diverse book. Solzhenitsyn departs regularly from the prisoners' journey for substantial essays on the evolution, psychology and sociology of the Gulag country. To show that repression began with Lenin and the Bolshevik revolution, not with Stalin, he carefully traces the development of the political police, penal institutions, criminal code and political trials from 1918. He records the three main "waves" of arrests that populated "our sewage disposal system"--peasants swept in by collectivization in 1929-30, party and other officials by Stalin's purges of the late 1930's, entire minority nations and repatriated Soviet P.O.W.'s in 1944-46--but also many of the endless "brooks and rivulets. . .and just plain individually scooped-up droplets" since the beginning. He explores the mentality and stratification of victims, and victimizers a swell. As a result, the book transcends exposé, becoming an authentic literary re-creation of the "native life and customs of Archipelago."
+
+How is this destruction of millions of innocent lives to be explained? Solzhenitsyn utterly rejects the view that it was caused by an aberration in Soviet history in 1929-53 known as Stalinism (a term having no real meaning for him). He maintains that it derived from the original nature of the Bolshevik revolution and Soviet political system-that there was a "straightline" between the Lenin and Stalin eras--and specifically from the Marxist-Leninst ideology.
+
+The ideology's "spiritual baseness," its lack of "religious and moral principles," caused and justified the evil-doing. This argument, scattered throughout "The Gulag Archipelago" is restated in Solzhenitsyn's "Letter to the Soviet Leaders"--a remarkable moral, philosophical, programmatic appeal sent secretly to the leadership in September, 1973--"This ideology bears the entire responsibility for all the blood that has been shed."
+
+Solzhenitsyn is certainly right that the police-prison camp system dates back to the year following the Bolshevik takeover in 1917, and that no achievements of the Soviet period can justify the subsequent torment and murder of millions. Leaving aside the fact that Soviet "ideology" has undergone radical changes over the years, and that Solzhenitsyn essentially equates Marxism with Stalinism, his general explanation, which is very similar to that of the most American scholars, is one-dimensional and selective in its historical evidence.
+
+The original Bolshevik terror of 1918-21, for example, although enhanced by ideology, did not stem primarily from it, but from the dynamics of a fierce civil war against counterrevolutionary White and foreign armies. Both sides resorted to atrocities, a reciprocity common to civil wars elsewhere. After the civil war and with the consolidation of N.E.P., the party's moderate, reconciliatory polices of the 1920's, terror largely disappeared until Stalin's forcible abolition of N.E.P. in 1929. Though he tries, Solzhenitsyn's evidence does not revise this picture of the Soviet 1920 or support his contention that N.E.P. was merely a cynical deceit," which is essential to his view of a "straight line" between Bolshevism and Stalinism.
+
+His indictment of the whole Bolshevik tradition produces other kinds of onesidedness. Most Western historians would at least agree that Lenin's legacy was ambiguous. In "The Gulag Archipelago" Lenin appears only as an embryonic Stalin, including repression against malingerers and foes as "insects." Bukharin, whom Solzhenitsyn calls "the highest and brightest intelligence" among original Bolshevik leaders, is nonetheless, or perhaps therefore, portrayed as sniveling and unprincipled before and during his arrest in 1937, though there is strong evidence he behaved very differently. Indeed, Solzhenitsyn suggests that virtually all of Stalin's millions of Communist victims, lacking "moral principles," behaved ignobly in prison, against contrary to much evidence.
+
+Similarly, Solzhenitsyn's refusal to consider other partial explanations conflicts with some of his own evidence. He argues rightly, for example, that Soviet repression has been many thousandfold greater and is thus qualitatively different from Czarist repression. Yet his materials show that renascent Czarist traditions, as well as the historical passivity of the Russian people, abetted the catastrophe.
+
+Despite the plain circumstance that capricious terrorizing of millions began and ended with Stalin's rule--the autocrat's presence as an animating force appears in asides throughout "The Gulag Archipelago"--Solzhenitsyn attributes no special significance to his role or personality.
+
+Finally, in powerful sections vivified by candid references to his own near recruitment into the secret police, and to personal callousness during his career as a Red Army captain, Solzhenitsyn demonstrates the old adage that power corrupts thereby implying a more universalist element of the holocaust.
+
+We can, in other words, honor and share Solzhenitsyn's moral condemnation of what happened without necessarily embracing his explanation. His personal conversion, in the Archipelago from Marxism to Leninism to Russian Christian Orthodoxy led him to an absolute repudiation of his first faith (a familiar syndrome among Western ex-Communists) and to the intensely religious, national, Slavophile outlook expressed in his "Letter."
+
+In it he implores the Soviet leadership to disavow this "rubbishy ideology." It has killed, he argues 66 million and bred cynicism and hypocrisy among the living; now it is leading to a disastrous war with China as well as ecological catastrophe through unbridled economic and technological growth.
+
+Critical of Western democracy and all notions of "eternal progress," he believes Russia can save herself only by turning deeply inward, away from empire and foreign involvements, and backward toward a reconstruction inspired by ancient native values of communalism, the land and the Church. The existing government, he says, can lead toward this "salvation" if, in addition, it adopts a truly benevolent authoritarianism that will "let the people breathe, let them think and develop!"
+
+Though profoundly Russian, Solzhenitsyn's outlook does not reflect the whole, or perhaps even a major part of dissident thinking in the Soviet Union today. The spokesmen of Western-style liberalism and democratic Marxism-Leninism, Andre Sakharov and Roy Medvedev, respect him greatly, share some of his demands, and have protested his mistreatment. But they disagree with him on crucial questions about the past and the future. In particular, the anti-Stalinist, oppositionist ideas of Medvedev and others derive from a very different historical perspective, one that views the great terror as a repulsive betrayal of the Bolshevik revolution and Marxist- Leninist ideals. A new anthology of left-wing documents edited by George Saunders, "Samizdat: Voices of the Soviet Opposition" (New York: Monad Press, 1974) gives evidence that this perspective is alive and vigorous.
+
+It is clear, however, that Solzhenitsyn, Sakharov, Medvedev and other brave nonconformists are engaged in an essential dialogue about the country's future. To this critical discussion the present Soviet leadership has nothing to contribute but censorship, selective repression and, in Solzhenitsyn's case, deportation. The implication of the situation is apparently the point of an anecdote now circulating in the Soviet Union:
+
+A hundred years from now it is asked, "Who was Brezhnev?"
+
+"Oh, he was some politician in the time of Solzhenitsyn."
+
+A hundred years from now it is asked, "Who was Breszhnev?"
+
+"Oh, he was some politician in the time of Solzyenitzyn."
+
+Stephen F. Cohen teaches at Princeton and is author of the recently published "Bukharin and the Bolshevik Revolution: A Political Biography, 1888-1938."
